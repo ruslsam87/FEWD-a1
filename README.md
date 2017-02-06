@@ -11,7 +11,7 @@ There are some things i like to do:
 
 
 Here is a video of me jumping on snowboarding:
-![i belive i can fly!!!](https://www.instagram.com/p/BQJpS7nBWyw/?taken-by=samigullin2655)
+![i belive i can fly!!!](https://www.instagram.com/p/BQJpS7nBWyw/)
 
 Check out my [instagram account](https://www.instagram.com/samigullin2655/) for more
 ## About me ##
